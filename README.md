@@ -5,9 +5,6 @@ QKUI.COM 秋葵
 RQSS.COM 柔情似水  
 QQWE.COM QQWE  
 
-LOLI.BJ 萝莉笔记  
-HI.SB  
-IWW.CC  
 
 # QQ:898892121
 # WX:XSUIXING
